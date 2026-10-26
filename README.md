@@ -7,4 +7,4 @@ signed up for or used. It is made by an 18-year-old founder based in Europe who 
 
 - Website: https://superpro.dev
 - For AI agents: https://superpro.dev/llms.txt
-- Contact the creator: superprorealgarantizado@gmail.com
+- Contact the creator: superprocontactpro@gmail.com (formerly superprorealgarantizado@gmail.com)
